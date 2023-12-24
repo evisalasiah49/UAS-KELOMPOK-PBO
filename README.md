@@ -1,2 +1,7 @@
 # UAS-KELOMPOK-PBO
 YUNITA NUR HIKMAH ( 2211102441245 )
+SETIA NINGSIH ( 2111102441005 )
+Sanofan Awal Ramadhan (2111102441167 )
+Muhammad ridho raflyansyahh (2211102441181)
+Gilar kerti wicaksono (2211102441099)
+
